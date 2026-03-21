@@ -1,4 +1,7 @@
-# Quote Motivasi 🌱
+# Quote Islami ✨
+
+## 2026-03-21 18:00:01 UTC
+> Tidak semua yang lambat itu gagal, kadang Allah sedang menyiapkan waktu terbaik.
 
 ## 2026-03-21 17:00:01 UTC
 > Kalau jalanmu terasa berat, mungkin itu tanda kamu sedang naik kelas.
