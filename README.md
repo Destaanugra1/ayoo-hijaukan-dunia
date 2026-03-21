@@ -1,6 +1,5 @@
 # ayoo-hijaukan-dunia 🌱
 
-> Hari ini mungkin kecil, tapi kalau rutin hasilnya bisa besar.
+> Jangan tunggu sempurna untuk mulai.
 
-Update ke: 1  
-Last auto update: 2026-03-21 15:48:32 UTC
+Last auto update: 2026-03-21 15:51:24 UTC
