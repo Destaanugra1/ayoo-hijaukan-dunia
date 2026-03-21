@@ -1,4 +1,7 @@
-# Quote Islami ✨
+# Quote Motivasi 🌱
+
+## 2026-03-21 17:00:01 UTC
+> Kalau jalanmu terasa berat, mungkin itu tanda kamu sedang naik kelas.
 
 ## 2026-03-21 16:06:34 UTC
 > Mulai dengan bismillah, jalani dengan sabar, akhiri dengan syukur.
