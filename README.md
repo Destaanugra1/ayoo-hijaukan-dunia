@@ -1,4 +1,7 @@
-# Quote Islami ✨
+# Quote Motivasi 🌱
+
+## 2026-03-21 23:00:01 UTC
+> Perbaiki niat, nanti langkahmu ikut rapi.
 
 ## 2026-03-21 22:00:01 UTC
 > Yang penting bukan siapa yang paling cepat, tapi siapa yang tetap istiqamah.
