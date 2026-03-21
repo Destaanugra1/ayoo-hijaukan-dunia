@@ -1,4 +1,7 @@
-# Quote Islami ✨
+# Quote Motivasi 🌱
+
+## 2026-03-21 19:00:01 UTC
+> Jangan tunggu sempurna untuk mulai.
 
 ## 2026-03-21 18:00:01 UTC
 > Tidak semua yang lambat itu gagal, kadang Allah sedang menyiapkan waktu terbaik.
