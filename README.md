@@ -1,4 +1,7 @@
-# Quote Motivasi 🌱
+# Quote Islami ✨
+
+## 2026-03-21 20:00:01 UTC
+> Kadang Allah menunda, bukan menolak.
 
 ## 2026-03-21 19:00:01 UTC
 > Jangan tunggu sempurna untuk mulai.
