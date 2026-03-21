@@ -1,4 +1,7 @@
-# ayoo-hijaukan-dunia 🌱
+# Quote Islami ✨
+
+## 2026-03-21 16:06:34 UTC
+> Mulai dengan bismillah, jalani dengan sabar, akhiri dengan syukur.
 
 ## 2026-03-21 16:05:22 UTC
 > Sabar bukan diam, sabar adalah tetap berjalan tanpa putus asa.
