@@ -1,4 +1,7 @@
-# Quote Motivasi 🌱
+# Quote Islami ✨
+
+## 2026-03-22 12:00:01 UTC
+> Semakin dekat dengan Allah, semakin kuat menghadapi dunia.
 
 ## 2026-03-22 11:00:01 UTC
 > Satu langkah kecil hari ini bisa jadi perubahan besar nanti.
