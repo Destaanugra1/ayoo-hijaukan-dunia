@@ -1,4 +1,7 @@
-# Quote Motivasi 🌱
+# Quote Islami ✨
+
+## 2026-03-22 16:00:01 UTC
+> Allah tidak membebani seseorang melainkan sesuai kesanggupannya.
 
 ## 2026-03-22 15:00:01 UTC
 > Hidup bukan lomba cepat, tapi perjalanan pulang yang benar.
