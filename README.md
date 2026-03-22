@@ -1,4 +1,7 @@
-# Quote Islami ✨
+# Quote Motivasi 🌱
+
+## 2026-03-22 17:00:01 UTC
+> Kalau jalanmu terasa berat, mungkin itu tanda kamu sedang naik kelas.
 
 ## 2026-03-22 16:00:01 UTC
 > Allah tidak membebani seseorang melainkan sesuai kesanggupannya.
