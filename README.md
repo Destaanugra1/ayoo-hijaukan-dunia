@@ -1,4 +1,7 @@
-# Quote Islami ✨
+# Quote Motivasi 🌱
+
+## 2026-03-22 13:00:01 UTC
+> Maju pelan tetap lebih baik daripada diam lama.
 
 ## 2026-03-22 12:00:01 UTC
 > Semakin dekat dengan Allah, semakin kuat menghadapi dunia.
