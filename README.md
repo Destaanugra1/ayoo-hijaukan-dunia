@@ -1,4 +1,7 @@
-# Quote Motivasi 🌱
+# Quote Islami ✨
+
+## 2026-03-22 07:00:01 UTC
+> Semakin dekat dengan Allah, semakin kuat menghadapi dunia.
 
 ## 2026-03-22 06:00:02 UTC
 > Pelan bukan berarti kalah, yang penting tetap jalan.
