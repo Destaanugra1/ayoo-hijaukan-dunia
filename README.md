@@ -1,5 +1,8 @@
 # Quote Motivasi 🌱
 
+## 2026-03-22 10:00:01 UTC
+> Jangan tunggu sempurna untuk mulai.
+
 ## 2026-03-22 09:00:01 UTC
 > Kalau belum hebat, ya gapapa—yang penting belum berhenti.
 
