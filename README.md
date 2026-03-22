@@ -1,5 +1,8 @@
 # Quote Motivasi 🌱
 
+## 2026-03-22 15:00:01 UTC
+> Hidup bukan lomba cepat, tapi perjalanan pulang yang benar.
+
 ## 2026-03-22 14:00:01 UTC
 > Tetap rendah hati saat naik, tetap kuat saat diuji.
 
