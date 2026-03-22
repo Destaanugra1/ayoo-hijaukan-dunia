@@ -1,5 +1,8 @@
 # Quote Motivasi 🌱
 
+## 2026-03-22 18:00:01 UTC
+> Istirahat boleh, menyerah jangan.
+
 ## 2026-03-22 17:00:01 UTC
 > Kalau jalanmu terasa berat, mungkin itu tanda kamu sedang naik kelas.
 
