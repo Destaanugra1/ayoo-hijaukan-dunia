@@ -1,4 +1,7 @@
-# Quote Motivasi 🌱
+# Quote Islami ✨
+
+## 2026-03-22 00:00:01 UTC
+> Kecil di mata manusia belum tentu kecil di sisi Allah.
 
 ## 2026-03-21 23:00:01 UTC
 > Perbaiki niat, nanti langkahmu ikut rapi.
