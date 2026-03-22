@@ -1,4 +1,7 @@
-# Quote Islami ✨
+# Quote Motivasi 🌱
+
+## 2026-03-22 06:00:02 UTC
+> Pelan bukan berarti kalah, yang penting tetap jalan.
 
 ## 2026-03-22 05:00:01 UTC
 > Hati yang tenang lahir dari tawakal yang kuat.
