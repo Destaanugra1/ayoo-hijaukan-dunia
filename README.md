@@ -1,4 +1,7 @@
-# Quote Islami ✨
+# Quote Motivasi 🌱
+
+## 2026-03-22 09:00:01 UTC
+> Kalau belum hebat, ya gapapa—yang penting belum berhenti.
 
 ## 2026-03-22 08:00:01 UTC
 > Semakin dekat dengan Allah, semakin kuat menghadapi dunia.
