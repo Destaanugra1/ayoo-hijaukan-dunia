@@ -1,4 +1,7 @@
-# Quote Motivasi 🌱
+# Quote Islami ✨
+
+## 2026-03-23 07:00:01 UTC
+> Semakin dekat dengan Allah, semakin kuat menghadapi dunia.
 
 ## 2026-03-23 06:00:02 UTC
 > Konsistensi mengalahkan semangat yang cuma datang sesekali.
