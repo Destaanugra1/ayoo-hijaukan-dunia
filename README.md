@@ -1,4 +1,7 @@
-# Quote Motivasi 🌱
+# Quote Islami ✨
+
+## 2026-03-23 13:00:01 UTC
+> Usaha yang baik adalah doa yang berjalan.
 
 ## 2026-03-23 12:00:01 UTC
 > Yang bikin jauh bukan langkah besar, tapi langkah yang terus diulang.
