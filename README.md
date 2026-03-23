@@ -1,4 +1,7 @@
-# Quote Islami ✨
+# Quote Motivasi 🌱
+
+## 2026-03-23 23:00:01 UTC
+> Konsistensi mengalahkan semangat yang cuma datang sesekali.
 
 ## 2026-03-23 22:00:01 UTC
 > Kecil di mata manusia belum tentu kecil di sisi Allah.
