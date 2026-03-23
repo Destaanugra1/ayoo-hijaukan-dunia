@@ -1,4 +1,7 @@
-# Quote Motivasi 🌱
+# Quote Islami ✨
+
+## 2026-03-23 18:00:01 UTC
+> Sabar bukan diam, sabar adalah tetap berjalan tanpa putus asa.
 
 ## 2026-03-23 17:00:01 UTC
 > Jangan tunggu sempurna untuk mulai.
