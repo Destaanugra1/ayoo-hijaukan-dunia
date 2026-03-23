@@ -1,4 +1,7 @@
-# Quote Motivasi 🌱
+# Quote Islami ✨
+
+## 2026-03-23 01:00:02 UTC
+> Mulai dengan bismillah, jalani dengan sabar, akhiri dengan syukur.
 
 ## 2026-03-23 00:00:01 UTC
 > Jangan tunggu sempurna untuk mulai.
