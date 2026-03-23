@@ -1,5 +1,8 @@
 # Quote Motivasi 🌱
 
+## 2026-03-23 15:00:01 UTC
+> Pelan bukan berarti kalah, yang penting tetap jalan.
+
 ## 2026-03-23 14:00:01 UTC
 > Tidak harus besar untuk mulai, tapi harus mulai untuk jadi besar.
 
