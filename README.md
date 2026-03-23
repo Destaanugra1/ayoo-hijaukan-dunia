@@ -1,4 +1,7 @@
-# Quote Motivasi 🌱
+# Quote Islami ✨
+
+## 2026-03-23 11:00:01 UTC
+> Hati yang tenang lahir dari tawakal yang kuat.
 
 ## 2026-03-23 10:00:01 UTC
 > Yang bikin jauh bukan langkah besar, tapi langkah yang terus diulang.
