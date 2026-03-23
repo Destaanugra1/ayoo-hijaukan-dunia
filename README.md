@@ -1,4 +1,7 @@
-# Quote Islami ✨
+# Quote Motivasi 🌱
+
+## 2026-03-23 10:00:01 UTC
+> Yang bikin jauh bukan langkah besar, tapi langkah yang terus diulang.
 
 ## 2026-03-23 09:00:01 UTC
 > Allah tidak membebani seseorang melainkan sesuai kesanggupannya.
