@@ -1,4 +1,7 @@
-# Quote Islami ✨
+# Quote Motivasi 🌱
+
+## 2026-03-23 14:00:01 UTC
+> Tidak harus besar untuk mulai, tapi harus mulai untuk jadi besar.
 
 ## 2026-03-23 13:00:01 UTC
 > Usaha yang baik adalah doa yang berjalan.
