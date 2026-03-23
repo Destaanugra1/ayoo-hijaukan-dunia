@@ -1,5 +1,8 @@
 # Quote Motivasi 🌱
 
+## 2026-03-23 06:00:02 UTC
+> Konsistensi mengalahkan semangat yang cuma datang sesekali.
+
 ## 2026-03-23 05:00:01 UTC
 > Kalau jalanmu terasa berat, mungkin itu tanda kamu sedang naik kelas.
 
