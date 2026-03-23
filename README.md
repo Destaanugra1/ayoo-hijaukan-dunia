@@ -1,4 +1,7 @@
-# Quote Islami ✨
+# Quote Motivasi 🌱
+
+## 2026-03-23 08:00:01 UTC
+> Kalau jalanmu terasa berat, mungkin itu tanda kamu sedang naik kelas.
 
 ## 2026-03-23 07:00:01 UTC
 > Semakin dekat dengan Allah, semakin kuat menghadapi dunia.
