@@ -1,5 +1,8 @@
 # Quote Motivasi 🌱
 
+## 2026-03-24 14:00:01 UTC
+> Istirahat boleh, menyerah jangan.
+
 ## 2026-03-24 13:00:01 UTC
 > Konsistensi mengalahkan semangat yang cuma datang sesekali.
 
