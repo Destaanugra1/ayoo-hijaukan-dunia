@@ -1,4 +1,7 @@
-# Quote Islami ✨
+# Quote Motivasi 🌱
+
+## 2026-03-24 20:00:01 UTC
+> Yang bikin jauh bukan langkah besar, tapi langkah yang terus diulang.
 
 ## 2026-03-24 19:00:01 UTC
 > Sabar bukan diam, sabar adalah tetap berjalan tanpa putus asa.
