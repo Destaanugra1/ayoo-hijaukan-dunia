@@ -1,4 +1,7 @@
-# Quote Motivasi 🌱
+# Quote Islami ✨
+
+## 2026-03-24 00:00:01 UTC
+> Usaha yang baik adalah doa yang berjalan.
 
 ## 2026-03-23 23:00:01 UTC
 > Konsistensi mengalahkan semangat yang cuma datang sesekali.
