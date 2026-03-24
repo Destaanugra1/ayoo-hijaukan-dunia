@@ -1,4 +1,7 @@
-# Quote Islami ✨
+# Quote Motivasi 🌱
+
+## 2026-03-24 06:00:01 UTC
+> Maju pelan tetap lebih baik daripada diam lama.
 
 ## 2026-03-24 05:00:01 UTC
 > Kecil di mata manusia belum tentu kecil di sisi Allah.
