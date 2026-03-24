@@ -1,4 +1,7 @@
-# Quote Motivasi 🌱
+# Quote Islami ✨
+
+## 2026-03-24 15:00:01 UTC
+> Allah tidak membebani seseorang melainkan sesuai kesanggupannya.
 
 ## 2026-03-24 14:00:01 UTC
 > Istirahat boleh, menyerah jangan.
