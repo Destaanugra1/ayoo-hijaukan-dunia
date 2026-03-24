@@ -1,4 +1,7 @@
-# Quote Motivasi 🌱
+# Quote Islami ✨
+
+## 2026-03-24 19:00:01 UTC
+> Sabar bukan diam, sabar adalah tetap berjalan tanpa putus asa.
 
 ## 2026-03-24 18:00:01 UTC
 > Pelan bukan berarti kalah, yang penting tetap jalan.
