@@ -1,4 +1,7 @@
-# Quote Motivasi 🌱
+# Quote Islami ✨
+
+## 2026-03-24 04:00:01 UTC
+> Yang penting bukan siapa yang paling cepat, tapi siapa yang tetap istiqamah.
 
 ## 2026-03-24 03:00:01 UTC
 > Tetap rendah hati saat naik, tetap kuat saat diuji.
