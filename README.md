@@ -1,4 +1,7 @@
-# Quote Islami ✨
+# Quote Motivasi 🌱
+
+## 2026-03-24 01:00:01 UTC
+> Hidup bukan lomba cepat, tapi perjalanan pulang yang benar.
 
 ## 2026-03-24 00:00:01 UTC
 > Usaha yang baik adalah doa yang berjalan.
