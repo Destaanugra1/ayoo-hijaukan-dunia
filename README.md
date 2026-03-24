@@ -1,4 +1,7 @@
-# Quote Islami ✨
+# Quote Motivasi 🌱
+
+## 2026-03-24 13:00:01 UTC
+> Konsistensi mengalahkan semangat yang cuma datang sesekali.
 
 ## 2026-03-24 12:00:01 UTC
 > Doa yang sering kamu ulang mungkin sedang Allah siapkan dengan cara terbaik.
