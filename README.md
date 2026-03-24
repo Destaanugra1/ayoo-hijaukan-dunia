@@ -1,4 +1,7 @@
-# Quote Islami ✨
+# Quote Motivasi 🌱
+
+## 2026-03-24 16:00:01 UTC
+> Rezeki tidak tertukar, tapi usaha tetap harus ditabur.
 
 ## 2026-03-24 15:00:01 UTC
 > Allah tidak membebani seseorang melainkan sesuai kesanggupannya.
