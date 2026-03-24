@@ -1,4 +1,7 @@
-# Quote Motivasi 🌱
+# Quote Islami ✨
+
+## 2026-03-24 08:00:01 UTC
+> Jangan takut proses panjang, Nabi pun dibentuk lewat perjalanan.
 
 ## 2026-03-24 07:00:01 UTC
 > Apa yang ditakdirkan untukmu akan menemukan jalannya.
